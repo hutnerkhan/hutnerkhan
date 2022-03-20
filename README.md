@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @hutnerkhan
+- 👀 I’m interested in coding
+- 🌱 I’m currently learning python
+- 💞️ I’m looking to collaborate on gaming hacks
+- 📫 77hk63@gmail.com
